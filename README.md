@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning basic computer knowledge.
 - 💞️ I’m looking to collaborate on GitHub.
 - 📫 How to reach me ...
-          You can contact me via Telegram https://t.me/cmw15004431816
+          You can contact me via Telegram https://t.me/mwc15004431816
           You can also reach me on X (formerly Twitter), Instagram and LinkedIn.
 - 😄 Pronouns: She/Her/They/Them
 - ⚡ Fun fact: This is a person who is looking for useful tools from the Internet and aims to learn some skills to use these tools.
